@@ -44,5 +44,5 @@ I envision a world where technology empowers individuals and organizations to re
 I'm always open to collaboration and new ideas. Feel free to explore my projects and reach out if you're interested in innovative educational solutions or AI-driven transformations!
 
 - 🌐 Website: https://litv.assista.plus
-- 💼 LinkedIn: [Jo Suttels](https://www.linkedin.com/in/modernworkplaceninja)
+- 💼 LinkedIn: [Jo Suttels Modern Workplace Ninja](https://www.linkedin.com/in/modernworkplaceninja)
 
